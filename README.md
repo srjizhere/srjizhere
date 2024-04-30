@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **bhiapatil@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/10UAxghODAgPYhwTjCZWcReh4yZF3CMAm/view?usp=share_link](https://drive.google.com/file/d/10UAxghODAgPYhwTjCZWcReh4yZF3CMAm/view?usp=share_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1KRjGkMPF-ZmsPVTNl1ZRa2IFNLfKUVA3/view?usp=sharing](https://drive.google.com/file/d/1KRjGkMPF-ZmsPVTNl1ZRa2IFNLfKUVA3/view?usp=sharing)
 
 - ⚡ Fun fact **Always wants to build virtually**
 
